@@ -59,4 +59,3 @@ Me interesa seguir aprendiendo, participar en proyectos reales y crecer profesio
 - **LinkedIn:** [Natalia Micaela Alvarez](https://www.linkedin.com/in/natalia-micaela-alvarez-301746310)
 - **Email:** [nataliamicaelaalvarez26@gmail.com](mailto:nataliamicaelaalvarez26@gmail.com)
 
-¡Gracias por visitar mi perfil! 😊
